@@ -1,3 +1,3 @@
-# 我的学术主页
+# Jin Liu
 
-**My howepage:** http://zhouxiuze.com/
+**My howepage:** www.jinliu.org
